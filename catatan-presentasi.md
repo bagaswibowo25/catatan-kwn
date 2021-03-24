@@ -95,4 +95,8 @@ Negara Hukum Indonesia menurut UUD 1945 mengandung prinsip-prinsip sebagai berik
 - Berdasarkan pasal 364 KUHP maksimal 7-9 tahun
 - Berdasarkan pasal 364 KUHP (pencurian ringan) 3 bulan
 
+# Slide 13
+## Infografis Ancaman Hukuman Baru Tipikor
 
+# Slide 14
+## Analisa & Kesimpulan
